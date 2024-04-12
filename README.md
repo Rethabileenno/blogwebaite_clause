@@ -1,1 +1,1 @@
-# blogwebaite_clause
+# blogwebsite_clause
